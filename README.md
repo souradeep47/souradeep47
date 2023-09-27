@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @souradeep47
-- 👀 I’m interested in code
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning everything there is to learn
 - 💞️ I’m looking to collaborate with anyone willing to
 
